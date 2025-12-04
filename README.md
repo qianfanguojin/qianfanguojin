@@ -1,6 +1,6 @@
 # Contact Me
 
-Email: yifan.xie@foxmail.com
+Email: xieyifancn@outlook.com
 
 QQ: 1657098617
 
